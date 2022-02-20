@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @katxuff
+- 👋 Hi, I’m katushka<3
 - 👀 I’m interested in roblox, dancing and other things
 - 🌱 I’m currently learning HTML and CSS
 - 💞️ I’m looking to collaborate on (nothing)
